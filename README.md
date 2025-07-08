@@ -10,4 +10,4 @@
 
 91在线精品视频平台整合多类高质量成人视频资源，涵盖日韩、欧美与国产热门内容。支持在线播放与高清加载，满足用户随时随地的观影需求。影片分类清晰，更新迅速，平台无广告干扰，营造一个舒适、快速的观影环境。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/doi20250708/doi1 ）</span>
